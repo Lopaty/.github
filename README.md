@@ -1,1 +1,1 @@
-# .github
+# Lopaťák Ondra
