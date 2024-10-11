@@ -1,1 +1,0 @@
-# Lopaťák Ondra
